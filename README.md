@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @BranoLoL
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning programming
+- 💞️ I’m looking to collaborate on github
+- 📫 How to reach me branokuzma123@gmail.com
+- 😄 Pronouns: he/him 
+- ⚡ Fun fact: Im from Slovakia
